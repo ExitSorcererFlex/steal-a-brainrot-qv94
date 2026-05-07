@@ -1,4 +1,4 @@
-
+steal a brainrot top Script is the best steal a brainrot Script, featuring auto-upgrade and anti-ban. Safe and powerful for all your needs.
 
 
 
